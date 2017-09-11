@@ -5,3 +5,4 @@ This a page about me
 
 
 Hi, I am a student of St.Clair college. I love creating things that's why i am doing designing course.
+I am new here in canada things are new but really intresting. People are nice and co-oprative.
